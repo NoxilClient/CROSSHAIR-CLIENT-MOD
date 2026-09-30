@@ -1,0 +1,2 @@
+# CROSSHAIR-CLIENT-MOD
+This is the mod page of crosshair client ! IF YOU WANT TO DOWNLOAD CROSSHAIR CLIENT DO IT ONLY FROM HERE! 
